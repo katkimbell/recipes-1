@@ -19,7 +19,7 @@ Finely grated parmesan
 Equipment
 One small pan for the bechamel sauce (preferably non-stick)
 One large, deep pan for the ragu
-A sha
+A shallow pan
 
 **Procedure**
 
